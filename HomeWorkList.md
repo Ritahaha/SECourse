@@ -96,7 +96,7 @@
 
 [刘文](https://cloud.githubusercontent.com/assets/14888667/11033798/3f30feac-8721-11e5-9a39-fd308332aced.png)
 
-
+[杜旻羲](https://cloud.githubusercontent.com/assets/14888642/11059506/18a01106-87d5-11e5-8310-c5f3c49e0af4.png)
 
 
 
